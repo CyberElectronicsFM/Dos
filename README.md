@@ -8,9 +8,9 @@ _________________________________________
 HOW WE BE 
 SOME WAYS TO TALKING WITH U ○●
 MY CANEL ON YOUTYBE SUBSCRIBE NOW 
-===》
+===》https://youtu.be/iTaZJtXLeaE
 MY ACC ON FACEBOOK 
-===》
+===》https://www.facebook.com/profile.php?id=100005415136153
 
 COPY THIS COMMENT ON YOUR TERMINAL IN TERMUX TO DON'T GET 
 ERORR (S)
